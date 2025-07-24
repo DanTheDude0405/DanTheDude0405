@@ -1,4 +1,4 @@
-## Hello, I'm **DanTheDude**!
+## Hello, I'm DanTheDude!
 
 I create **[Minecraft Maps](https://www.planetminecraft.com/member/danthedude/)** for **Java Edition**, often inspired by other video games.
 
