@@ -6,4 +6,4 @@ I also create **[YouTube Videos](https://www.youtube.com/channel/UCiMWeGliSAsDVs
 
 I'm also on **[Patreon](https://patreon.com/DanTheDude?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=creatorshare_creator&utm_content=join_link)**, where I post exclusive content, such as **Bonus Maps**, **Behind-The-Scenes**, and even **Early Access** to upcoming maps.
 
-If you want to get in touch, you can join my official **[Discord Server](https://discord.gg/NzH2R6d2c9)**.
+If you want to get in touch, you can join my **[Discord Server](https://discord.gg/NzH2R6d2c9)** and hang out with me.
