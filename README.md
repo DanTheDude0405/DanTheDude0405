@@ -4,6 +4,6 @@ I create **[Minecraft Maps](https://www.planetminecraft.com/member/danthedude/)*
 
 I also create **[YouTube Videos](https://www.youtube.com/channel/UCiMWeGliSAsDVsd6yYnxDkA)**, which mostly focus on maps I'm working on at the time.
 
-I'm also on **[Patreon](https://patreon.com/DanTheDude?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=creatorshare_creator&utm_content=join_link)**, where you can expect **Bonus Maps**, **Behind-The-Scenes**, or **Early Access** to new releases.
+I'm also on **[Patreon](https://patreon.com/DanTheDude?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=creatorshare_creator&utm_content=join_link)**, where you can expect **Bonus Maps**, **Sneak Peeks**, **Behind-The-Scenes**, and **Early Access** to new releases.
 
 If you want to get in touch, you can join my **[Discord Server](https://discord.gg/NzH2R6d2c9)** and hang out with me.
